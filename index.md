@@ -1,5 +1,4 @@
-
 ## Charakter Qute
-> I’ve always
+> I-ve always
 
 
